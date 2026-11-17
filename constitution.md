@@ -4,7 +4,7 @@ Our shared vision/purpose is to become better people by sharing our personal and
 
 ## 2. Fiscal Year
 
-1 June to 30 May or as per YEN’s calendar
+1 June to 30 May or as per YEN's calendar
 
 ## 3. Confidentiality
 
@@ -14,15 +14,15 @@ Any breach of confidentiality will result in immediate expulsion from the Forum.
 
 **Number of Meetings and Retreats**
 
-<span style="color:#FFFF00">[10]</span> meetings are held each year. One of the meetings may be an overseas retreat and the other may be social and is counted for attendance purposes.
+**[10]** meetings are held each year. One of the meetings may be an overseas retreat and the other may be social and is counted for attendance purposes.
 
 **Attendance**
 
-In each fiscal year, members may attend up to <span style="color:#FFFF00">[two]</span> forum discussions virtually if physically absent from the country and allowed <span style="color:#FFFF00">[one]</span> leave of absence
+In each fiscal year, members may attend up to **[two]** forum discussions virtually if physically absent from the country and allowed **[one]** leave of absence
 
-<span style="color:#FFFF00">[SGD200/- fine]</span> to be paid by the end of next day for subsequent absence (2nd absence)
+**[SGD200/- fine]** to be paid by the end of next day for subsequent absence (2nd absence)
 
-And automatic next day removal from the Forum/group chat (WhatsApp etc) if a member misses <span style="color:#FFFF00">[three]</span> meetings within a fiscal year, subject to unanimous reinstatement vote;
+And automatic next day removal from the Forum/group chat (WhatsApp etc) if a member misses **[three]** meetings within a fiscal year, subject to unanimous reinstatement vote;
 
 **Cell Phones and Electronics**
 
@@ -30,7 +30,7 @@ No cell phones are allowed during Forum meetings or retreats, except during desi
 
 **Punctuality**
 
-We will start and end our meetings on time. Fine of <span style="color:#FFFF00">[SGD50/-]</span> after <span style="color:#FFFF00">[30 min]</span> grace period from start time and an additional <span style="color:#FFFF00">[½]</span> absence will be assessed if a member arrives <span style="color:#FFFF00">[1 hour]</span> or later but before end time.
+We will start and end our meetings on time. Fine of **[SGD50/-]** after **[30 min]** grace period from start time and an additional **[½]** absence will be assessed if a member arrives **[1 hour]** or later but before end time.
 
 **Meeting Dates**
 
@@ -96,7 +96,7 @@ Members joining the Forum must meet majority consent of the existing members.
 
 **Business Dealings**
 
-All business transactions more than <span style="color:#FFFF00">[US$100,000]</span> are strongly discouraged among Forum members and must be disclosed to the Forum.
+All business transactions more than **[US$100,000]** are strongly discouraged among Forum members and must be disclosed to the Forum.
 
 **Romantic Relationships**
 
